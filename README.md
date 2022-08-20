@@ -1,1 +1,1 @@
-# MyfuckingCV
+# CV
